@@ -2,3 +2,4 @@
 Cositas de Medac 🤙🤙🤙
 UwU
 alvaro otaku
+deja de ver anime
